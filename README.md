@@ -1,2 +1,2 @@
 # Deal
-Deal for me and pang
+Let's make money!
